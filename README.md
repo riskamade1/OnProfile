@@ -11,10 +11,6 @@
 
 - 👯 I’m looking to collaborate on **Tea Project Backed Binance**
 
-- 👨‍💻 All of my projects are available at [My Like Din](My Like Din)
-
-- 📄 Know about my experiences [You Know me If Follow My Account](You Know me If Follow My Account)
-
 - ⚡ Fun fact **I Blackbox Tester / Bug Hunter**
 
 <h3 align="left">Connect with me:</h3>
